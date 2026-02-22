@@ -1,8 +1,4 @@
-
-
 ## 🚀 HACKATHON ORGANIZING ROADMAP (END-TO-END)
-
-
 
 ## 🧠 PHASE 1: IDEA & FOUNDATION (6–8 weeks before)
 
